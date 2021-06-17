@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @etxpale
+- 📫 How to reach me paul.lernmark@acnestudios.com
